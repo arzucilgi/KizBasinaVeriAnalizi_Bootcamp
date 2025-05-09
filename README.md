@@ -1,1 +1,0 @@
-# KizBasinaVeriAnalizi_Bootcamp
